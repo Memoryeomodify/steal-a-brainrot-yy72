@@ -1,4 +1,4 @@
-
+Get ahead in steal a brainrot with steal a brainrot ultimate Scripts, featuring unlimited stamina and undetectable. Download now to dominate every match with ease and confidence,
 
 
 
